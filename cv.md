@@ -1,1 +1,3 @@
-
+Svetlana Antipova
+svetka83@bk.ru
+Top performing IT professional with 15 years’ successful experience in Information Technology field. Proficient in hardware and software maintenance. Solid track record of providing the timely positive response to requests regarding computer-related assistance. A deep understanding of the general organizational confidentiality policies associated with IT specialist position.
